@@ -1,1 +1,1 @@
-# rsschool-cv
+https://samedau.github.io/rsschool-cv/cv
